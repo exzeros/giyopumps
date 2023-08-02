@@ -10,7 +10,7 @@ When it comes to bikepacking, having a tire pump that strikes the right balance 
 
 <center>
 
-(https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgaWsXVNnFOEuakrZDfar9kUAjlO9so1F0sp0QXypkpanhRN9O53bFLPuY2X9DzfXu6byV8yZBZeW_-5ZxKLGOzX-UnuXCQeUcxdDa9fBcH9Ft2H0R9H5U3a5ShdkElceQ2ttWjFGpTrhuhvA1Y3hyufiMG2hPcFwu4kp0MsfOEyfqJDaMAfZatXvPcbv0/s1600/giyopumps.png)
+![enter image description here](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEgaWsXVNnFOEuakrZDfar9kUAjlO9so1F0sp0QXypkpanhRN9O53bFLPuY2X9DzfXu6byV8yZBZeW_-5ZxKLGOzX-UnuXCQeUcxdDa9fBcH9Ft2H0R9H5U3a5ShdkElceQ2ttWjFGpTrhuhvA1Y3hyufiMG2hPcFwu4kp0MsfOEyfqJDaMAfZatXvPcbv0/s1600/giyopumps.png)
   
 </center>
 
