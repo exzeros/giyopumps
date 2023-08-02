@@ -37,10 +37,10 @@ In the exciting realm of bikepacking, where self-reliance and preparedness are p
 
 **Contact GIYO Pumps**
 
-**Website:** https://giyopumps.com/
-**Facebook:** https://www.facebook.com/giyopumps
-**Instagram:** https://www.instagram.com/giyopumps
-**YouTube:** https://www.youtube.com/@giyopumps
-**Phone:** +886-4-2493-4676
-**Email:** giyo@giyo.com.tw
-**Address:** [Taichung City, Taiwan](https://goo.gl/maps/dNTQ2rx7mK7awVmi8) 
+- **Website:** https://giyopumps.com/
+- **Facebook:** https://www.facebook.com/giyopumps
+- **Instagram:** https://www.instagram.com/giyopumps
+- **YouTube:** https://www.youtube.com/@giyopumps
+- **Phone:** +886-4-2493-4676
+- **Email:** giyo@giyo.com.tw
+- **Address:** [Taichung City, Taiwan](https://goo.gl/maps/dNTQ2rx7mK7awVmi8) 
